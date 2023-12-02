@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @PetrVasnec
+- 👋 Hi, I’m Glor
 - 👀 I’m interested in Cinema,Stream,Country
 - 🌱 I’m currently learning world ))
 
